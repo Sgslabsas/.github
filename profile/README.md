@@ -13,4 +13,4 @@ SGS Labs er et norsk selskap som lager digitale verktøy for arbeidsflyter som s
 
 ---
 
-SGS Labs AS · Org.nr. 998 186 021
+[websmie.sgslabs.no](https://websmie.sgslabs.no) · SGS Labs AS · Org.nr. 998 186 021
